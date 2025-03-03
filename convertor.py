@@ -1,4 +1,4 @@
-please watch the video for code :
+please watch the video for code : https://youtu.be/2fvHo6M0l-c?si=G7fuEgtdrXg8KMoi
 
 
 #section code in case u fellinng miss values
